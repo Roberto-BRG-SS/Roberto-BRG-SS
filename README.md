@@ -65,12 +65,12 @@ Continuar estudando e desenvolvendo projetos para:
 - Aprimorar minhas habilidades em programação;
 - Aprender novas tecnologias;
 - Criar projetos para meu portfólio;
-- Evoluir profissionalmente na área de desenvolvimento de sistemas.
+- Evoluir profissionalmente na área de desenvolvimento de sistemas;
 
 ---
 
 <div align="center">
 
-### 🚀 Sempre aprendendo, sempre evoluindo.
+### Tecnologia em ação!!
 
 </div>
