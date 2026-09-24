@@ -2,7 +2,7 @@
 
 # 👋 Olá, eu sou o Roberto!
 
-### 💻 Desenvolvedor em formação | Estudante de Desenvolvimento de Sistemas
+### 💻 Desenvolvedor em formação | Estudante de Desenvolvimento de Sistemas eu amo assitir porno gay, com homens masculos e de preferencia negros. Todo dia preciso ver uma jeba do tamanho bigorna (é igual café, se eu não tomar não começa o meu dia)
 
 </div>
 
