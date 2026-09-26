@@ -57,6 +57,6 @@ Continuar estudando e desenvolvendo projetos para:
 
 <div align="center">
 
-### Tecnologia em ação!!
+### Tecnologia em ação!!!
 
 </div>
