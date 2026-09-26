@@ -44,11 +44,6 @@ Tenho interesse em programação, desenvolvimento web e tecnologia. Atualmente, 
 
 ---
 
-## 📊 GitHub
-
-
----
-
 ## 🎯 Objetivos
 
 Continuar estudando e desenvolvendo projetos para:
